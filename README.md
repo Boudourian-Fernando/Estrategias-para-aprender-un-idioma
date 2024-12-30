@@ -1,1 +1,2 @@
 # Estrategias-para-aprender-un-idioma
+Aprender un idioma es como desarrollar un nuevo sistema: comienza con los fundamentos. Aprende vocabulario básico y usa inmersión digital para fortalecer tu base. Avanza con contenido multimedia, como películas y podcasts, y conecta con hablantes nativos para depurar tus habilidades. En el nivel avanzado, integra expresiones idiomáticas y piensa en el idioma para perfeccionarlo. La consistencia es clave en este proceso. 
